@@ -7,7 +7,7 @@
 - 💬 Ask me about ...
 - 📫 How to reach me:
 -               Email(school): ngl200000@utdallas.edu
--               Email(work):  lam79933@gmail.com
+-               Email(work):  nghiWork@gmail.com
 -               Phone(Cell): 469-655-1502*
 -   * _if you try to contact me by phone, please leave a voicemail stating who you are, the purpose of the call, and your contact method(s). I will response, at most, within 2-3hrs_
 - 😄 Pronouns: she/her
